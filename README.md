@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @dayne-debug
-- 👀 I’m interested in ... programming and software engineering, tech and cybersecurity & AI
+- 👀 I’m interested in ... programming and software engineering, tech, cybersecurity, mathematics & AI
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... brycedayne@gmail.com ig:daynebryce 
